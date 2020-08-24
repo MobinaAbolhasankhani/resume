@@ -1,1 +1,1 @@
-[resume](http://MobinaAbolhasankhani.github.io/)
+[resume](http://MobinaAbolhasankhani.github.io/resume)
